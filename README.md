@@ -32,4 +32,4 @@ I believe technology should solve real problems. AI can support the process, but
 ### Connect With Me
 
 - [LinkedIn](https://www.linkedin.com/in/anji-bob-manuel-6a71593ba/)
-- - [TikTok](https://www.tiktok.com/@analyzewith_anji)
+- [TikTok](https://www.tiktok.com/@analyzewith_anji)
